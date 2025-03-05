@@ -19,7 +19,7 @@ Additionally, I assist **other developers** with:
 🌍 [MTTS Website](https://mttseminary.org) – A school management website.
 🚀 [MTTS Library](https://library.mttseminary.org) – A digital theological library  
 🌍 [MTTS Portal](https://portal.mttseminary.org) – A school management system  
-📱 [Holiness & Deliverance Ministry App](https://mega.nz/folder/8cwnDBZa#OtRto-85idwn8l6W3G7X6Q)  
+📱 [Holiness & Deliverance Ministry App](https://mega.nz/file/0J4TCZ6D#Td_Z_AjKeG3TEzmaj30SfFIIAj8UpKsPFn_WaaT1Al4)  
 
 📬 **Let's Connect:**  
 🔗 [LinkedIn](https://www.linkedin.com/in/joshua-moses-99174417b)  
